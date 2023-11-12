@@ -1,4 +1,4 @@
 # FaMaXx
-- 🏆・Investor  
-- 👾・NFT &amp; Crypto   
-- 🇫🇷・Based in Toulouse
+- 🏆 Investor  
+- 👾 NFT &amp; Crypto   
+- 🇫🇷 Based in Toulouse
